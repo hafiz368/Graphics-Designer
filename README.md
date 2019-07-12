@@ -1,2 +1,1 @@
-# Graphics-Designer
-Graphics Designer
+I am a proffetional Graphics Designer.
